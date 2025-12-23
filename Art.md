@@ -1,3 +1,5 @@
+## A word on Art
+
 Furry artists, whilst everywhere, can be hard to find at first - especially if you're looking for a specific type of work or style. The main thing you'd want to headhunt is those who have "Commissions Open", meaning they are able to take your requests for artwork.
 
 Be patient! It can be a while before you understand what you really want and what art style or niches you look for (such as me, with a cartoony Disney-style duck). Don't be afraid to pick up a sheet of paper and pencil yourself, even if you're terrible like me it's still really therapeutic being able to express your imagination.
