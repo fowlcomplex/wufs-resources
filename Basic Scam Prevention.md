@@ -1,8 +1,8 @@
-- __Rule 1: If it seems to good to be true, it probably is. __
-- __Rule 2: If unsure, ask a friend, or one of us here. __
+- Rule 1: If it seems to good to be true, it probably is. __
+- Rule 2: If unsure, ask a friend, or one of us here. __
 - Don't click on any links without verifying what you're getting into. 
 - Do not transfer over money or accept any without understanding the implications of such (especially crypto!). 
 - If someone asks to draw art for you, or likewise asks for photos of your reference to do such, it is most likely a scam. Especially if it comes out of nowhere. 
 - If it's a time-limited offer or pressure is put on you to make a decision quickly, it's most likely a scam. 
 - Verify the identity of the seller/buyer (eg: if an artist, check previous references, reviews, ask for proof of works such as checking their toyhouse profile or previous deals). 
-- Use PayPal and take screenshots/receipts/evidence during the agreement of any purchase in case of the need for chargeback. 
+- Use PayPal or a trusted service and take screenshots/receipts/evidence during the agreement of any purchase in case of the need for chargeback. 
