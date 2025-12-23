@@ -1,5 +1,16 @@
 # Welfare, Support and Self-Help Resources
 
+### CURRENTLY A WIP, USE THE DISCORD RESOURCES CHANNEL BEFORE THIS BECOMES OFFICIAL
+https://discord.com/channels/1035294931163545711/1404920258245955685
+
+
+# LIST OF CONTENTS
+- Anonymous Disclosure Form / Welfare Form
+- Inclusivity
+- University Services 
+- External Services
+- Further Information
+
 ## Foreword
 This channel is designed to be filled with information about self-help resources, signposting, education and awareness so that you are equipped with the information and support necessary for whatever you may face.
 
