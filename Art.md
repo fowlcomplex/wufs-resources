@@ -10,7 +10,7 @@ Finding Art, Artists and Craft tends to be most successful via:
 - Attending FurMeets (there will often be an Artist Table)
 - Conventions (Artists Alley / Dealers Den)
 - Word-of-mouth
-- WUFS Events (we are fortunate to have a couple artists!) .
+- Furry Society Events (we are fortunate to have a couple artists!) .
 
 ***Online Means:*** 
 - "Furry Art" / "Furry" / "SFW Furry Art" Feeds on Bsky
