@@ -9,4 +9,5 @@
 - If someone asks to draw art for you, or likewise asks for photos of your reference to do such, it is most likely a scam. Especially if it comes out of nowhere. 
 - If it's a time-limited offer or pressure is put on you to make a decision quickly, it's most likely a scam. 
 - Verify the identity of the seller/buyer (eg: if an artist, check previous references, reviews, ask for proof of works such as checking their toyhouse profile or previous deals). 
-- Use PayPal or a trusted service and take screenshots/receipts/evidence during the agreement of any purchase in case of the need for chargeback. 
+- Use PayPal or a trusted service and take screenshots/receipts/evidence during the agreement of any purchase in case of the need for chargeback.
+- REMEMBER: IF UNSURE, ASK FOR HELP!!!
