@@ -1,4 +1,4 @@
-**Basic Scam Prevention**
+## Basic Scam Prevention
 
 - Rule 1: If it seems to good to be true, it probably is. 
 - Rule 2: If unsure, ask a friend, or one of us here. 
