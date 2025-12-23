@@ -1,2 +1,1 @@
-# public
-My public repository. Designed to link stuff and resources here.
+not really much else to say
