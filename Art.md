@@ -24,4 +24,4 @@ Finding Art, Artists and Craft tends to be most successful via:
 Once you find an artist(s) you like, they will often have a linktree, caard, toyhou.se or similar allowing you to view all their socials and works, and deduce whether their commissions are open or closed. 
 Remember - treat an artist nicely, and they'll treat you nice in return :3 
 
-In addition to all of this, I would advise creating a toyhou.se account, this can help with transferring art or proving ownership of characters! EG: https://toyhou.se/soulbit (an artist).
+In addition to all of this, I would advise creating a toyhou.se account, this can help with transferring art or proving ownership of characters! EG: https://toyhou.se/soulbit (an artist) 
