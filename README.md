@@ -1,2 +1,1 @@
-# public
-My public repository. Designed to link stuff and resources here.
+Listing all public resources here for WUFS and its members under my github account.
