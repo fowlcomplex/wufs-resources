@@ -15,7 +15,7 @@ Finding Art, Artists and Craft tends to be most successful via:
 ***Online Means:*** 
 - "Furry Art" / "Furry" / "SFW Furry Art" Feeds on Bsky
 - #furryart and similar hashtags on Bsky/Twitter
-- TheDealersDen.com ||(All sellers and buyers have to pay to be verified, whilst this won't stop scams and bots it heavily discourages it)||
+- TheDealersDen.com (All sellers and buyers have to pay to be verified, whilst this won't stop scams and bots it heavily discourages it)
 - toyhou.se 
 - Twitter (a lot of artists still use Twitter) 
 - Instagram/TikTok
