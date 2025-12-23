@@ -1,7 +1,7 @@
 
 ## __**Fursuits / Furry Merch**__
 
-A lot of the guidance above can be applied to this. Some special things to note for Fursuits / Furry Merch:
+Some special things to note for Fursuits / Furry Merch:
 
 - When buying internationally, work out an agreement on customs (such as if your package gets lost/damaged)
 - I would exercise further caution shipping from the US and Russia. Whilst there are lots of makers, the problem is Tariffs and Customs Fees means you often pay 1.5x-2x+ the amount quoted, as well as other risks such as the package possibly being damaged or lost.   
@@ -13,15 +13,15 @@ Just because you submit a commission or receive a quote, does not guarantee your
 
 These methods have tended to find the most success:
 
-***In-Person Means***
+### In-Person Means
 Attending FurMeets (ask suiters where they got their suit from)
 Conventions (Artists Alley / Dealers Den)
 Word-of-mouth (us at WUFS have a couple suits...)
 
-***Online Means: ***
+### Online Means:
 "Furry / Fursuits" Feeds on Bsky
 #fursuits and similar hashtags on Bsky/Twitter
-TheDealersDen.com ||International maker agencies exist such as fox4, but I would apply the same caution as any other seller, make sure to read details completely!||
+TheDealersDen.com (International maker agencies exist such as fox4, but I would apply the same caution as any other seller, make sure to read details completely!)
 Twitter (a lot of makers/vendors still use Twitter)
 Instagram/TikTok
 
