@@ -1,5 +1,7 @@
-- Rule 1: If it seems to good to be true, it probably is. __
-- Rule 2: If unsure, ask a friend, or one of us here. __
+**Basic Scam Prevention**
+
+- Rule 1: If it seems to good to be true, it probably is. 
+- Rule 2: If unsure, ask a friend, or one of us here. 
 - Don't click on any links without verifying what you're getting into. 
 - Do not transfer over money or accept any without understanding the implications of such (especially crypto!). 
 - If someone asks to draw art for you, or likewise asks for photos of your reference to do such, it is most likely a scam. Especially if it comes out of nowhere. 
