@@ -1,6 +1,5 @@
 # ***NOTE: THIS IS WRITTEN SPECIFICALLY IN REFERENCE TO WUFS. KEEP THIS IN MIND!!!***
 
-
 ## __**Furmeets**__
 BrumFurs (Birmingham) is the one we plan to frequent. 
 CovFurs has been put on hold for the time being. 
