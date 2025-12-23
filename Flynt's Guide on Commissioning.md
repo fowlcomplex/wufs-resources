@@ -1,4 +1,4 @@
-Full Credit goes to @flynt251 on discord and github who wrote the entire thing. 
+Full Credit and Responsibility goes to @flynt251 on discord and github who wrote the entire thing. 
 The link to the original can be found below:
 
 https://discord.com/channels/1035294931163545711/1417576439523311706
