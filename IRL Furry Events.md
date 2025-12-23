@@ -10,7 +10,7 @@ For many UK meets (eg: NottsFurs), they will have their own telegram and/or bsky
 You may need to verify upon entering (to prevent scams/bots), if so feel free to put me down as a contact/vouch as necessary and make sure to let me know so I do vouch for you!
 
 - BrumFurs Telegram: https://t.me/brumfurs 
-- BrumFurs Discord: https://discord.gg/DUnq4sYCT5
+- BrumFurs Discord: [ASK @fowlcomplex on discord]
 
 - CovFurs Telegram: https://t.me/joincovfursupdates
 
